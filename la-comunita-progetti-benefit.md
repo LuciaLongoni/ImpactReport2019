@@ -3,6 +3,11 @@
 ## Nuove attività 2019
 
 ### progetto Alessia nelle scuole
+Un libro che da poco ho iniziato si intitola 'I bambini pensano grande; cronaca di una aventura pedagogica' Si tratta della esperienza di un proferssore di scuola elementare, Franco Lorenzoni, il quale ha voluto condividere una sorta di diario scolastico in cui riporta gli appunti e le annotazioni sulle discussioni, riflessioni, ragionamenti fatti tra i bambini di quinta elementare a cui ha insegnato. Quanto è bello vedere come egli ha contribuito alla vita e quanto i pensieri dei bambini siano vivi e in evoluzione! Quanto posso contribuire io a far sì che il momento della educazione scolastica dei miei figli e in generale dei bambini si trasformi in esperienza di vita anzichè semplice nozione? E come posso farlo attraverso l'azienda in cui lavoro? Ecco un esempio: lo scorso anno, presso una piccola scuola di paese, insieme a maestri, colleghi e genitori abbiamo realizzato un progetto che è stata una vera e propria esperienza sia dell'anima, che corporea che cognitiva. Il progetto consisteva nel realizzare un orto scolastico, partendo dalla scelta della pianta nel bosco dalla quale ricavare gli assi (da decorare) per la staccionata di recinzione, alla conoscenza -seppur minima- della influenza dei pianeti e delle sementi più adatte al clima locale, al trapianto in campo delle piante seminate in vaso durante l'inverno, alla cura degli ortaggi e raccolta. Siamo partiti dalla mitologia greca, con il mito di Demetra e Persefone raccontato da Alessia -che in mondora si occupa di filosofia- per spiegare la magia delle stagioni e 'coltivare' la parte spirituale dei nostri bambini, oltre che il senso pratico di fare ed accudire l'orto e le nozioni teoriche di come coltivarlo.
+Vivere delle esperienze ci permette di interiorizzare quel che ci accade in maniera completa e profonda ed è questo il senso che cerchiamo di dare nella collazorazione con le scuole, attingendo alle nostre qualità profesisonali e umane.
+Sulla stessa scia abbiamo coontribuito a sensibilizzare bambini e adulti sul tema della plastica e a seguire la scuola nella certificazione 'plastic free'.
+Quest'anno stiamo introducendo il concetto di arte come forma educativa, sotto forma di laboratori musicali per la costruzione di strumenti semplici, da suonare in gruppo.
+
 
 ### Laboratori di Arte
 
